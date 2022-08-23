@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Blaise-666
-- 👀 I’m interested in Hucking and Programming
-- 🌱 I’m currently learning at Home
-- 💞️ I’m looking to collaborate on Huckers and programmers
+- 👀 I’m interested in cyber security and Programming
+- 🌱 
+- 💞️ I’m looking to collaborate on Hackers and programmers
 - 📫 How to reach me ,find me on IG as blaise8216
 
 <!---
